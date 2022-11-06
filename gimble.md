@@ -99,7 +99,8 @@
 > - Clay pot
 > - Lady Gredj Loyaly Card (3/5)
 > - Peach Wine
-> - Jar of Bees
 > - Kit's Powder Box
+> - GOCH™ grey neckerchief
+> - 
 > - Various misc herbs and flowers and oils and woods and vials in all the pockets of the cloak
 > 
